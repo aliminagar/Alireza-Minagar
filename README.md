@@ -30,5 +30,5 @@ Cloud & Security: Private Cloud, Firewall Security, Cloud Computing
 In addition to my scientific career, I am an oil portrait artist! 🎨🖌️ Check out some of my artwork at Perfect Strokes
 🔗 Connect with Me
 Email: aminagar@gmail.com
-LinkedIn: Alireza Minagar
+LinkedIn: www.linkedin.com/in/alireza-minagar-md-mba-ms-biotech-bioinformatics-b450aa173
 GitHub: @aliminagar
