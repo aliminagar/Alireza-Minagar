@@ -31,4 +31,4 @@ In addition to my scientific career, I am an oil portrait artist! 🎨🖌️ Ch
 🔗 Connect with Me
 Email: aminagar@gmail.com
 LinkedIn: www.linkedin.com/in/alireza-minagar-md-mba-ms-biotech-bioinformatics-b450aa173
-GitHub: @aliminagar
+GitHub: @aliminagar](https://github.com/aliminagar)
